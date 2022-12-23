@@ -1,2 +1,2 @@
-An american privacy crypto curency, Amero is the future of american wealth.
-untraceable and strictly cpu minable.
+Amero is the future of finance. Amero is a privacy crypto curency, 
+untraceable and strictly cpu minable. 
